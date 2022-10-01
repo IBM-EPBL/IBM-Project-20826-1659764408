@@ -6,4 +6,4 @@ Containment zone Alerting Application
     Deepak Kumar R
     Gayathri Devi R.S
     Jaya Karthik Kumar R.D
-    Jaya Priya Dharshini V
+    Jaya Priya Dharshini K
